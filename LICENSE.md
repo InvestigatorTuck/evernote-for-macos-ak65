@@ -1,4 +1,4 @@
-
+Evernote for macOS top Script - focus mode and dark mode offers the most advanced Evernote for macOS script, with focus mode and dark mode. Ideal for professionals.
 
 
 
